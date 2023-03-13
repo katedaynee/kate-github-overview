@@ -15,10 +15,6 @@ it's Kate P. (Trinh)! I'm a highly motivated web3 marketing guru and I only choo
 
 ♡ love ♫ self-discovery 🔛 chill bar 〇 books 》web3 & decentralization ⌸ 
 
-## 🥃 web3 stories I've worked on / consulted
-
-*To be updated*
-
 ## ⛹️ web3 marketing growth hacks
 
 *To be updated*
