@@ -3,7 +3,7 @@
 
 ## 👋 hey! great to meet you here
 
-it's Kate P. (Trinh)! I'm a highly motivated web3 marketing guru and I only choose to do what I love.
+it's Kate! I'm a highly motivated web3 marketing guru and I only choose to do what I love.
 
 - 🌱 currently, I'm developing a product that caters to both NFT newbies and pro-collectors. after doing marketing for several types of projects in web3, I realized NFT sector empowers the community much more strongly than others in the space, with the culture of apes and shills. more than happy to experience it!
 - **fun fact 1:** although I've read about 50 professional books so far, it's because I'm always lazy and looking for successful methods that work.
