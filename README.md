@@ -10,6 +10,7 @@ it's Kate! I'm a highly motivated web3 marketing guru and I only choose to do wh
 - **fun fact 2:** despite I work more than 10 hours per day, I don’t like working, work loves me 😢 =)) jk. crypto never sleeps. I manage to balance myself and take some time off.
 - 💼 work? reach out to me at [linkedin](https://bit.ly/3L6g2Xx)
 - 💬 life? welcome to my cute world at [instagram](http://bit.ly/3YcDg0T)
+- make a call: [calendly](https://calendly.com/kate-seekhype/)
 
 ## ♡ things I love
 
@@ -21,4 +22,4 @@ it's Kate! I'm a highly motivated web3 marketing guru and I only choose to do wh
 
 ---
 
-“*The credit marketer is good at adding value to users and storytelling by nature.” Me =))*
+“*The credit marketer is good at adding values to users and storytelling by nature.” Me =))*
