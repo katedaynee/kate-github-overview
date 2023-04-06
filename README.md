@@ -20,7 +20,7 @@ it's Kate! I'm a highly motivated web3 marketing guru and I only choose to do wh
 
 *to be updated*
 
-## channels
+## ♬ channels
 
 - join my team? dm me anytime [linkedin](https://bit.ly/3L6g2Xx)
 - make a call: [calendly](https://calendly.com/kate-seekhype/)
