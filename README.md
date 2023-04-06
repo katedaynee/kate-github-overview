@@ -24,7 +24,7 @@ it's Kate! I'm a highly motivated web3 marketing guru and I only choose to do wh
 
 - join my team? dm me anytime [linkedin](https://bit.ly/3L6g2Xx)
 - make a call: [calendly](https://calendly.com/kate-seekhype/)
-- thoughts & life? welcome to my cute world at [instagram](http://bit.ly/3YcDg0T) or [twitter](https://twitter.com/katedaynee)
+- thoughts & life? welcome to my cute world at [twitter](https://twitter.com/katedaynee) or [instagram](http://bit.ly/3YcDg0T)
 
 ---
 
