@@ -28,4 +28,4 @@ it's Kate! I'm a highly motivated web3 marketing guru and I only do what I love.
 
 ---
 
-“*The credit marketer is good at adding values to users and storytelling by nature.” Me =))*
+“*The credit marketer is good at adding values to users and storytelling.” Kate being-18-forever =))*
