@@ -18,7 +18,7 @@ it's Kate! I'm a highly self-motivated an Asia NFTs researcher and marketer. I l
 *docs are being updated* - always open to chat
 
 ## ♬ reach out?
-- 💼 collab? reach out to me at [twitter](https://twitter.com/katedaynee). I always try to reply to you as soon as I can.
+- 💼 collab? send me and DM at [twitter](https://twitter.com/katedaynee). I'll try to reply as soon as I can.
 - feel free to make a call via [calendly](https://calendly.com/kate-seekhype/)
 - join my team? dm and share me how you contribute anytime at [linkedin](https://bit.ly/3L6g2Xx)
 
