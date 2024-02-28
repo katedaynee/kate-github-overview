@@ -3,18 +3,17 @@
 
 ## 👋 hey! great to meet you here
 
-it's Kate! I'm a highly motivated web3 marketing guru and I only do what I love.
+it's Kate! I'm a highly motivated an Asia NFTs researcher and marketer. I love working and I only do what I trust. working helps me understand myself.
 
-- 🌱 currently, I'm developing a product that caters to both NFT newbies and pro-collectors. after doing marketing for several types of projects in web3, I realized NFT sector empowers the community much more strongly than others in the space, with the culture of apes and shills. more than happy to experience it!
-- **fun fact 1:** although I've read more than 50 professional books so far, it's because I'm always lazy and looking for successful methods that work.
-- **fun fact 2:** despite I am always available for work, I don’t like working, work loves me 😢 =)) jk. crypto never sleeps. I manage to balance myself and take some time off.
-- 💼 collab? reach out to me at [telegram](https://t.me/katedaynee). I always try to reply to you as soon as I can.
-
+- 🌱 currently, I'm developing an NFT platform aimed at promoting mass adoption of NFTs in Asia. after doing marketing for different types of projects in web3 and technology products since 2017, I realized the NFT segment empowers the community much more strongly than others in the blockchain space. Living in its the culture, I've becomed happier and value all friends contributing to NFTs. We're all connected by just one principle: Respect.
+- **fun fact 1:** even though I've read more than 100 professional books so far, I don't actually enjoy reading. it's because I'm too lazy to do A/B/C testing and want to find the most successful methods that work :'< share your concerns with me, and I'll recommend a book that can validate the hypothesis ;)
+- **fun fact 2:** Crypto never sleeps, but I sleep for 10 minutes every 1-2 hours haha. It's important to manage energy levels effectively. I think everyone has their own methods for achieving this balance. proper energy management contributes to productivity and overall satisfaction.
+- 💼 collab? reach out to me at [twitter](https://twitter.com/katedaynee). I always try to reply to you as soon as I can.
 
 
 ## ♡ things I love
 
-♡ love ♫ self-discovery 🔛 chill bar 〇 books 》web3 & decentralization ⌸ 
+♡ NFTs & community culture ⌸ love ♫ self-discovery 🔛 little things in life 〇 decentralization 》
 
 ## ⛹️ web3 marketing growth hacks
 
@@ -24,8 +23,7 @@ it's Kate! I'm a highly motivated web3 marketing guru and I only do what I love.
 
 - make a call: [calendly](https://calendly.com/kate-seekhype/)
 - join my team? dm and share me how you contribute anytime at [linkedin](https://bit.ly/3L6g2Xx)
-- thoughts & life? welcome to my cute world at [twitter](https://twitter.com/katedaynee) or [instagram](http://bit.ly/3YcDg0T)
 
 ---
 
-“*The credit marketer is good at adding values to users and storytelling.” Kate being-18-forever =))*
+“*The credit marketer is good at adding values to users and storytelling.” Kate-forever-18 =))*
