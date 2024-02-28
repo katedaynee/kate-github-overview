@@ -13,7 +13,7 @@ it's Kate! I'm a highly self-motivated an Asia NFTs researcher and marketer. I l
 
 ♡ NFTs & community culture ⌸ love ♫ self-discovery 🔛 little things in life 〇 decentralization 》
 
-## ⛹️ NFT marketing
+## ⛹️ NFT-web3-marketing
 
 *docs are being updated* - always open to chat
 
