@@ -24,7 +24,7 @@ haha proud to flex. japanese supermarket. spa. influencer commerce. infrastructu
 ## ♬ reach out?
 - 💼 collab? send me a DM at [twitter](https://twitter.com/katedaynee). I'll try to reply as soon as I can.
 - feel free to make a call via [calendly](https://calendly.com/kate-daynee) I'll show up on time
-- join our team? share me how you can add values at [linkedin](https://www.linkedin.com/in/kate-dayne-trinh-10a031131/)
+- join our team? share with us how you can add values at [linkedin](https://www.linkedin.com/in/kate-dayne-trinh-10a031131/)
 
 ---
 
