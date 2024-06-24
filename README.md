@@ -19,7 +19,7 @@ i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do.
 
 ## ⛹️ biz i've built from 0
 
-haha proud to flex. japanese supermarket. spa. influencer commerce. infrastructure. wallet. nft marketplace. now NFT DAO
+haha proud to flex. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. now NFT DAO
 
 ## ♬ reach out?
 - 💼 collab? send me a DM at [twitter](https://twitter.com/katedaynee). I'll try to reply as soon as I can.
