@@ -15,7 +15,7 @@ i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do.
 
 ## ⛹️ NFT-web3-marketing
 
-*docs are being updated* - always open to chat with my team (AANC, AntiAntiNFTs Club)
+*docs are being updated* - always open to chat
 
 ## ⛹️ biz i've built from 0
 
