@@ -11,7 +11,7 @@ i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do.
 
 ## ♡ things I love
 
-♡ NFTs & decentralization culture ⌸ love ♫ self-discovery 🔛 cute little things in life 〇 learn 》startups
+♡ NFTs & decentralization culture ♫ self-discovery 🔛 cute little things in life 〇 learn 》startups
 
 ## ⛹️ NFT-web3-marketing
 
