@@ -11,7 +11,7 @@ i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do. here's
 
 ## ♡ things I love
 
-♡ NFTs & decentralization culture ♫ self-discovery 🔛 cute little things in life 〇 learn 》startups
+♡ NFTs & decentralization culture ♫ self-discovery 🔛 cute little things in life 〇 learn 》startups // bar stories // etc etc a lot. I enjouy single moment of my life with 5 senses.
 
 ## ⛹️ NFT-web3-marketing
 
@@ -19,7 +19,7 @@ i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do. here's
 
 ## ⛹️ biz i've built from 0
 
-haha proud to flex, in the end we're just proud of what we fully own right. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. now NFT DAO
+haha proud to flex, in the end we're just proud of what we own right. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. now NFT DAO
 
 ## ♬ reach out?
 - 💼 collab? send me a DM at [twitter](https://twitter.com/katedaynee). I'll try to reply as soon as I can.
