@@ -3,7 +3,7 @@
 
 ## 👋 hey welcome! great to meet you here
 
-i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do.
+i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do. here's the exp I collected. life is about experience.
 
 - 🌱 currently i'm developing an NFT platform aimed at promoting mass adoption of NFTs in Asia. after working on different types of web3 and technology products, i realized the NFT segment empowers the community much more strongly than others in the blockchain space. living in its the culture, i've becomed happier and value all friends contributing to NFTs. we've connected by one thing on top: respect.
 - **fun fact 1:** im grateful for the power of community. 2021 started fulltime for crypto, a community of 5 boosted my confidence thru hard time. AANC, each core team member has different stories. we all commit to driving values for community.
@@ -15,7 +15,7 @@ i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do.
 
 ## ⛹️ NFT-web3-marketing
 
-*docs are being updated* - always open to chat
+<img width="1238" alt="Screenshot 2024-08-20 at 11 30 49" src="https://github.com/user-attachments/assets/fccb192e-0b04-47a7-b44f-9097c720d12a">
 
 ## ⛹️ biz i've built from 0
 
