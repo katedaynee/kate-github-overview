@@ -3,7 +3,7 @@
 
 ## 👋 hey welcome! great to meet you here
 
-i'm kate, a highly self-motivated Asia NFTs researcher. i love what i do. here's the exp I collected. life is about experience.
+i'm Kate, a highly self-motivated Asia NFTs researcher. i love what i do. here's the exp I collected. life is about experience.
 
 - 🌱 currently i'm developing an NFT platform aimed at promoting mass adoption of NFTs in Asia. after working on different types of web3 and technology products, i realized the NFT segment empowers the community much more strongly than others in the blockchain space. living in its the culture, i've becomed happier and value all friends contributing to NFTs. we've connected by one thing on top: respect.
 - **fun fact 1:** im grateful for the power of community. 2021 started fulltime for crypto, a community of 5 boosted my confidence thru hard time. AANC, each core team member has different stories. we all commit to driving values for community.
