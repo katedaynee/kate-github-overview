@@ -25,4 +25,4 @@ haha proud to flex, in the end we're just proud of what we fully own. japanese m
 
 ---
 
-“*be yourself. sống thuận theo tự nhiên.” kate-forever-18 =))*
+“*be yourself. sống thuận theo tự nhiên.” kate-forever-18 :P*
