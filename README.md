@@ -1,6 +1,3 @@
-
-![ViewCount](http://bit.ly/Thomas-Github-Visits)
-
 ## 👋 hey welcome! great to meet you here
 
 i'm Kate, a highly self-motivated Asian NFTs researcher with global mind. i love what i do. here's the exp i collected. life is about experience.
