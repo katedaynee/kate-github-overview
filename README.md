@@ -14,6 +14,8 @@ i'm Kate, a highly self-motivated Asian NFTs researcher with global mind. i love
 
 <img width="1238" alt="Screenshot 2024-08-20 at 11 30 49" src="https://github.com/user-attachments/assets/fccb192e-0b04-47a7-b44f-9097c720d12a">
 
+latest: [Challenges Onboarding Retail to Web3 through NFTs](https://github.com/katedaynee/NFT-web3-marketing)
+
 ## ⛹️ biz i've built from 0
 
 haha proud to flex, in the end we're just proud of what we fully own. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. now NFT DAO
