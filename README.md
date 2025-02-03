@@ -18,7 +18,7 @@ latest: [Challenges Onboarding Retail to Web3 through NFTs](https://github.com/k
 
 ## ⛹️ biz i've built from 0
 
-haha proud to flex, hearing in the end we're just proud of the real experience we own. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. etc. now NFT DAO (ofc with trustworthy friends)
+haha proud to flex, hearing in the end we're proud of the experience we own. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. etc. now NFT DAO (ofc with trustworthy friends)
 
 ## ♬ reach out?
 💼 say hello to me at [telegram](t.me/katedaynee) or [x](x.com/katedaynee). I'll try to reply as soon as I can.
